@@ -1,6 +1,8 @@
 # xiangix.github.io
 https://xiangix.github.io
-hi im xiangi
-pls dislike me
-on discord instagram and whatsapp
-i have no life, im just that cracked
+Hi what's up i'm xiangdong
+xiangi for short yk
+This is the xiangi FAN PAGE
+where you guys get to ADMIRE ME
+THANKYOU
+
